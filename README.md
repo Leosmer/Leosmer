@@ -13,7 +13,7 @@
 - 👯 I’m looking to collaborate with other Developers :wink:
 - 🥅 2026 Goals: Contribute to Open Source projects
 - 💬 Ask me about anything, I am happy to help :smile:
-- ⚡ Fun fact: PHP is my best friend 
+- ⚡ Fun fact: Im currently working on my english conversation level!
 
 <br>
 
